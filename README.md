@@ -1,0 +1,2 @@
+# strescarkiindir
+oyun indir
